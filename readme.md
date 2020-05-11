@@ -12,3 +12,5 @@ pabandom is naujo
 
 
 pabandom
+
+hkkhhkh
